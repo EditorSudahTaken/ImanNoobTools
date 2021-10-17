@@ -1,0 +1,1 @@
+kirim salam kat mochi <3 (ig : gades_malaya) cakap daripada iman :)
